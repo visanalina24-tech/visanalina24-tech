@@ -1,4 +1,5 @@
  Hi there 👋
+ 
  My name is Alina and I'm 20 years old, from Bucharest.
  
  Currently, I'm student at Bucharest University of Economic Studies and my passion is about technology and problem solving. I know I'm at the beginning of my adventure but I'm eager to learn and contribute through opportunities. 🚀
